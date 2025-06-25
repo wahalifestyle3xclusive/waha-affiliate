@@ -3,7 +3,7 @@ eCommerce or Shops affiliate membership. Any one can join with free membership a
 
 Start Selling Smart, with Zero Investment!
 
-UniSell Hub is a cutting-edge eCommerce and affiliate marketplace where anyone can join for free and start listing physical or digital products. Whether you're a small shop, kiosk owner, digital creator, or reseller, UniSell Hub empowers you to earn commissions with ease.
+Affiliate Unisell is a cutting-edge eCommerce and affiliate marketplace where anyone can join for free and start listing physical or digital products. Whether you're a small shop, kiosk owner, digital creator, or reseller, Affiliate UniSell Hub empowers you to earn commissions with ease.
 
 ✨ Key Features:
 
